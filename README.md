@@ -1,1 +1,1 @@
-![Animação](https://github.com/AmandaCylleno/DUO/assets/145169742/013b5d63-8965-48d9-9d00-efa9610b7c15)
+![Animação](https://github.com/AmandaCylleno/DUO/assets/145169742/359463b3-9a24-4530-8cde-f77a8e5c6d80)
